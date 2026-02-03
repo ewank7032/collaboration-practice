@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome.
 #### 10
-#### 11 I love drinks.
+#### 11 I love food and drinks.
 #### 12
 #### 13
 #### 14
